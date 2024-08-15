@@ -7,4 +7,4 @@
 
 <a href="https://ibb.co/0Dg8Sy9"><img src="https://i.ibb.co/8KWTpgx/IMG-20240525-131419-779.jpg" alt="IMG-20240525-131419-779" border="0"></a>
   #### ```TOTAL PROFILE VIEWS 🧚```
-![Visitor Count](https://profile-counter.glitch.me/Toxic1239/count.svg)
+![Visitor Count](https://profile-counter.glitch.me/Toxxic1239/count.svg)
